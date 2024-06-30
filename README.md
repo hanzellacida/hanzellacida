@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @hanzellacida
-- 👀 I’m interested in ... Digital Marketing especially in Paid Advertising
+- 👋 Hi, I’m @hanzellacida a Solopreneur
+- 👀 I’m interested in ... Digital Marketing especially in Paid Advertising (Google Ads) & IT enthusiast
 - 🌱 I’m currently continous learning ... IT Related specifically creating website templates in visual Code Studio or in Notepad++
 - 💞️ I’m looking to collaborate on ... Google Ads Training in Exchange of Any IT Related Work
 - 📫 How to reach me ... https://beacons.ai/hanslacida
