@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on ... Google Ads Training in Exchange of Any IT Related Work
 - 📫 How to reach me ... https://beacons.ai/hanslacida
 
-An experienced Google Ads specialist. Strong experience managing shopping feeds, campaign optimizations, and data-driven decisions. Committed to enhancing your online advertising efforts.
+An Aspiring Web Developer (HTML, CSS JAVA) & An experienced Google Ads specialist. Strong experience managing shopping feeds, campaign optimizations, and data-driven decisions. Committed to enhancing your online advertising efforts.
