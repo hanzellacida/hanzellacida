@@ -11,7 +11,7 @@ Collaboration
 💞️ I’m open to collaborating on Google Ads training in exchange for any IT-related work.
 
 Contact
-📫 You can reach me via beacons.ai/hanslacida.
+📫 You can reach me via beacons.ai/hanslacida
 Email me at contact@hansmediabuyer.com
 
 Mentorship
