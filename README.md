@@ -1,4 +1,4 @@
-Hi, I’m @hanzellacida, a Solopreneur, OG HTML Coder, and Google Ads Manager.
+Hi, I’m @hanzellacida, a Solopreneur, OG HTML Coder, Paid Search Director and Google Ads Manager.
 An aspiring web developer with skills in HTML, CSS, and Java, I bring over a decade of experience as a Google Ads specialist. I excel in managing setting up shopping feeds, optimizing campaigns,google tag manager, google analytics GA4 and making data-driven decisions to enhance your online advertising efforts.
 
 Interests
