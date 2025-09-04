@@ -12,7 +12,7 @@ Collaboration
 
 Contact
 📫 You can reach me via https://beacons.ai/hanslacida
-Email me at contact@hansmediabuyer.com
+Email me at contact@hanslacida.com
 
 Mentorship
 👀 I am currently looking for a mentor in the IT business to improve my development and business skills. If you are an experienced IT professional and entrepreneur interested in mentoring, please reach out.
